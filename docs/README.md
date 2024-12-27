@@ -1,11 +1,10 @@
 **Whitepaper for Orumyx (ORX)**  
 
 
-[ترجمه فارسی](README.Farsi.md)
----
-
 ### **Orumyx (ORX): A Stable Mineral-Backed Token for Decentralized Finance**  
 
+
+[ترجمه فارسی](README.Farsi.md)
 ---
 
 ### **Abstract:**  
