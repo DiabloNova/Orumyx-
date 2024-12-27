@@ -4,8 +4,7 @@
 [ترجمه فارسی](README.Farsi.md)
 ---
 
-###
-**Orumyx (ORX): A Stable Mineral-Backed Token for Decentralized Finance**  
+### **Orumyx (ORX): A Stable Mineral-Backed Token for Decentralized Finance**  
 
 ---
 
