@@ -1,5 +1,7 @@
 **Whitepaper for Orumyx (ORX)**  
 
+
+[ترجمه فارسی](README.Farsi.md)
 ---
 
 ###
