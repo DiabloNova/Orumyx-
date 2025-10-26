@@ -2150,3 +2150,26 @@ We invite all users, investors, and developers to join the Orumyx ecosystem. Tog
 ---
 
 **End of Whitepaper for Orumyx (ORX)**
+https://aimusicgen.ai/share/146dfb62-ea84-4a95-9c9e-eb128f639c25
+
+https://aimusicgen.ai/share/146dfb62-ea84-4a95-9c9e-eb128f639c25
+
+
+Hidden sorrow 
+
+https://aimusicgen.ai/share/0cd2e5c8-04b5-48dc-813b-ae6b8494f82f
+https://aimusicgen.ai/share/2079238b-4422-4fcc-bbc1-6977c092925b
+
+فارسی https://aimusicgen.ai/share/93b806aa-549a-408c-9dc2-73c8ef034673
+
+
+https://aimusicgen.ai/share/d29604da-5ef5-4153-8c9c-f6bf932b95f9
+
+Rock 
+https://aimusicgen.ai/share/7ba3b754-7146-4201-ab46-545e4dbf1528
+https://aimusicgen.ai/share/7ba3b754-7146-4201-ab46-545e4dbf1528
+https://aimusicgen.ai/share/146dfb62-ea84-4a95-9c9e-eb128f639c25
+
+https://aimusicgen.ai/share/0cd2e5c8-04b5-48dc-813b-ae6b8494f82f
+
+https://aimusicgen.ai/share/2079238b-4422-4fcc-bbc1-6977c092925b
